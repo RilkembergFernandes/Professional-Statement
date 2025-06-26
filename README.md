@@ -18,4 +18,4 @@ Sou um profissional em formação na área de tecnologia, com foco em **programa
 - Linux & Shell
 - Projetos de IA aplicados a segurança e análise de imagens
 
-📫 Vamos nos conectar? rilkemberg18santo@gmail.com | www.linkedin.com/in/rilkemberg-fernandes-santos-48ba05233
+📫 Vamos nos conectar? rilkemberg18santos@gmail.com | www.linkedin.com/in/rilkemberg-fernandes-santos-48ba05233
